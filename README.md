@@ -1,4 +1,4 @@
-**Why "Mycelium/The Hive" Will Win HackMIT and Revolutionize the Future of AI**
+### **Why "Mycelium/The Hive" Will Win HackMIT and Revolutionize the Future of AI**
 
 ---
 
